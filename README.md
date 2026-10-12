@@ -1,0 +1,2 @@
+# premium-aquascaping-001-aquascaping-planted-aquarium
+Stop relying on scattered notes and messy sketches to plan your aquascapes. The Aquascaping &amp; Planted Aquarium Design Studio - Notion Template gives you a single, organized hub to design, track, and perfect every planted aquarium project.  This template eliminates the chaos of managing multiple scapes by providing a structured design studio within
